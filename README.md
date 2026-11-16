@@ -1,1 +1,1 @@
-software engineer in barcelona.
+software engineer. building cool things :)
