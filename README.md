@@ -1,1 +1,1 @@
-software engineer. building cool things :)
+software engineer :)
